@@ -1,4 +1,4 @@
-<h2 align="left">Hi 👋! My name is Onur.</h2>
+<h2 align="left">My name is Onur. Onur Epbaygun. I dont know made me my way i am but whatever it was left a hollow place inside. People fake alot of human interactions but i feel like i fake them all very weel thats my birden my guess. But i will not blame my foster parents did a wonderful job raising me. But their both dead now i didnt kill them honest.</h2>
 
 ###
 
